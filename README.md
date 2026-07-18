@@ -1,4 +1,4 @@
-I'm not gonna share any screenshots, however. please don't harass posion n his friends. 
+I'm not gonna share any screenshots, i lost my discord due to being locked out
 
 posion aka @/pathogen-interface RUINED my coping mechaniacs comic(whimsical ward) & my life btw,, dont forget/neg/dir
  no, i'm not changing my status and remove his user in my readmme.md UNLESS he deletes EVERY comment abt whimsical ward nor my toyhouse w/ ACTUAL proof. Geniunely stop, if you victimlized or babied that adult.. do not befriend an adult who was once 17 y/o WHO told my Toyhouse w/o my permission n consent to his friends. For your infomation, i did not talk about my toyhouse to them nor his friends. Only ones i did to is my friends and my moriail, to add on here, he also made fun of trauma of my bad experience to phighting fandom(i know it's absurd. Just reminder for posion and his friends. **you do not know  what my friends and I are going through.** i'm speaking this out,, all i want from posion is to **apologized to me for these things above.**
@@ -22,7 +22,4 @@ One of his friends harassed my friend's system origin(i'm not saying it, since p
 one of his friends mocked her system trauma like its nothing.... So you telling me that you have "ableist dni" in your dni list then procress to enable your friends to harass my friend mental disorder, riddle me this; this reason why i supported my friend's system origin because i want to respect and treat my friend like a "brother who got your back" friendship dyamatic... yet you and your friends got her scared and worry. [wip, its  unfinished]
 - - - -
 Skipping from some weeks later, i was offtab and sitting with my oomf. I saw cool phighting skins i was watching them interacting with each other. I decided to give it a shot to play and have fun with them. After, i noticed that posion unfriended me and i finally blocked him in-sight, same with his friends. i was so tired and finally unmasked my anger at him in my github status. 
-
 [WIP]
- -archive but be aware pls!
- **(another warning, i do NOT condone harassment,,, all i ask is to removing ANY mention of whimsical ward and my toyhouse also harassment against my friends due to my mental health sakes, I want disclosure, if you harass him or his friends any kind of way. I will be condemned.)**
