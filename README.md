@@ -20,4 +20,4 @@ Whimsical ward is NOT based on psyche ward in any way, it is based on one of the
 [WIP] might update this...
 
  -archive but be aware pls!
- (i do **NOT** condone harassment,,, pls talk him out of removing ANY mention of whimsical ward and my toyhouse also harassment against my friends due to my mental health reasons, I want disclosure, if you harass him or his friends any kind of way. I will be condemned.)
+ **(i do NOT condone harassment,,, pls talk him out of removing ANY mention of whimsical ward and my toyhouse also harassment against my friends due to my mental health reasons, I want disclosure, if you harass him or his friends any kind of way. I will be condemned.)**
