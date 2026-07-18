@@ -17,7 +17,12 @@ Posion: "have you think about not making place on those, Kiz..."
 
 Whimsical ward is NOT based on psyche ward in any way, it is based on one of the roblox games based on that inspirsed me which its the genre called 'dreamcore' and  based on my coping mechanism for my comfort when i'm hurt or uncomfy either way.
 
-[WIP] might update this...
 
+One of his friends harassed my friend's system origin(i'm not saying it, since posion took advantage of that aswell)
+one of his friends mocked her system trauma like its nothing.... So you telling me that you have "ableist dni" in your dni list then procress to enable your friends to harass my friend mental disorder, riddle me this; this reason why i supported my friend's system origin because i want to respect and treat my friend like a "brother who got your back" friendship dyamatic... [wip on this once again]
+- - - -
+Skipping from some weeks later, i was offtab and sitting with my oomf. I saw cool phighting skins i was watching them interacting with each other. I decided to give it a shot to play and have fun with them. After, i noticed that posion unfriended me and i finally blocked him in-sight, same with his friends. i was so tired and finally unmasked my anger at him in my github status. 
+
+[WIP]
  -archive but be aware pls!
  **(another warning, i do NOT condone harassment,,, all i ask is to removing ANY mention of whimsical ward and my toyhouse also harassment against my friends due to my mental health sakes, I want disclosure, if you harass him or his friends any kind of way. I will be condemned.)**
