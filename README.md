@@ -1,4 +1,4 @@
-I'm not gonna share any screenshots, i lost my discord due to being locked out
+I'm can't gonna share any screenshots, i lost my discord due to being locked out
 
 posion aka @/pathogen-interface RUINED my coping mechaniacs comic(whimsical ward) & my life btw,, dont forget/neg/dir
  no, i'm not changing my status and remove his user in my readmme.md UNLESS he deletes EVERY comment abt whimsical ward nor my toyhouse w/ ACTUAL proof. Geniunely stop, if you victimlized or babied that adult.. do not befriend an adult who was once 17 y/o WHO told my Toyhouse w/o my permission n consent to his friends. For your infomation, i did not talk about my toyhouse to them nor his friends. Only ones i did to is my friends and my moriail, to add on here, he also made fun of trauma of my bad experience to phighting fandom(i know it's absurd. Just reminder for posion and his friends. **you do not know  what my friends and I are going through.** i'm speaking this out,, all i want from posion is to **apologized to me for these things above.**
